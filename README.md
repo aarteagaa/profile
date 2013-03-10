@@ -6,6 +6,9 @@ Alfonso de Arteaga's profile
 A marketing and bussiness developement engineer with more than 20 years working in some technological multinational
 companies such as Xerox and Orange selling products and services to the Corporate and Consumer markets.
 
+Really interested in e-Learning field: adaptative learning, Instructional Design, and tools to comunicate ideas
+and knowledge.
+
 I have been in marketing and sales departments with different roles: seller, indirect sales manager, trainer,
 product manager, project manager, etc. Results oriented, hard working, highly motivated, customer oriented, strong
 communication skills and a team player.
